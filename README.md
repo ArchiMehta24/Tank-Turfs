@@ -1,0 +1,1 @@
+•	The game features a dynamic menu, engaging sound effects, and a quiz mini-game on famous monuments, adding an educational twist. Players can test their knowledge between tank battles. Tank Turfs offers a blend of action and learning in a visually appealing setting.
